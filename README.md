@@ -1,6 +1,4 @@
-Hello 👋
-
-Let's Connect 💬
+👋👋👋👋👋
 
 - 📬 [Email](nparsons08@gmail.com)
 - 🐦 [Twitter](https://twitter.com/nickparsons)
